@@ -1,6 +1,6 @@
 # Vecta Corporation
 
-With innovative approaches and advanced methodologies, Vecta Corporation provides scalable business solutions to help companies achieve success through revenue increase, cost management, and user satisfaction. Our approach stems from the three most important business growth aspects: helping companies reach prospects, assist in converting prospects to customers, and assist in retaining those customers. This is accomplished through our interactive solutions and expertise in providing a memorable and positive user experience.
+Vecta Corporation, through creative techniques and advanced methodologies, provides scalable business solutions to assist firms achieve success through revenue growth, cost control, and user pleasure. Our methodology is based on the three most critical areas of business growth: assisting organizations in reaching prospects, converting prospects to customers, and retaining those customers. Our interactive solutions and skill in generating a memorable and positive user experience enable us to achieve this.
 
 ## About Us
 
